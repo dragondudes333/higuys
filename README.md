@@ -11,9 +11,10 @@
 links 4 more info 
 
 [strawpage](https://hoodiiinii.straw.page/) [guns.lol](https://guns.lol/greenj)
-![image alt](https://github.com/dragondudes333/higuys/blob/main/Untitled452_20251130173543.webp?raw=true)
-
+![image alt](https://github.com/dragondudes333/dragondudes333/blob/main/Untitled452.webp?raw=true)
 ![](https://komarev.com/ghpvc/?username=dragondudes333&color=green)
 
 readme made with the help of my lovely boyfriend <33
-Haha, tank you -Dude
+
+haha, tank you- Dude
+
