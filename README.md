@@ -10,4 +10,4 @@
 
 [strawpage](hoodiiinii.straw.page/) [guns.lol](guns.lol/green)
 
-![image alt]([https://github.com/dragondudes333/higuys/blob/main/Untitled452_20251130173543.webp?raw=true)
+![image alt](https://github.com/dragondudes333/higuys/blob/main/Untitled452_20251130173543.webp?raw=true)
