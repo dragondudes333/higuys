@@ -8,8 +8,9 @@
 
 .    → inspo is allowed! ; DNC unless given permission to
 
-checkout links for more info pls :]
+links 4 more info 
 
+[strawpage](https://hoodiiinii.straw.page/) [guns.lol](https://guns.lol/greenj)
 ![image alt](https://github.com/dragondudes333/higuys/blob/main/Untitled452_20251130173543.webp?raw=true)
 
 ![](https://komarev.com/ghpvc/?username=dragondudes333&color=green)
